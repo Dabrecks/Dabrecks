@@ -38,3 +38,4 @@ Je suis prêt à mettre tous les efforts pour devenir efficace rapidement dans m
 ## Pour me rejoindre
 * [![Linkedin](https://i.stack.imgur.com/gVE0j.png) LinkedIn](https://www.linkedin.com/in/guillaume-labrecque-6044ba7a/)
 * guillaume_labrecque@outlook.com
+* (https://guillaumelabrecque.com/)
